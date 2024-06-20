@@ -1,5 +1,5 @@
 # larissatoldoo
-Me chamo Larissa Gabriela Toldo De Mello 🫶
+Prazer,sou Larissa Gabriela Toldo De Mello 🫶
 Adoro ter amizades sou alegre e bem agitada 🫡
 Estudo no colegio cedab 😌
 Estou querendo virar medica cirurgiã,e sei que vou conseguir 🤭
