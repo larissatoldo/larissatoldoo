@@ -1,16 +1,16 @@
 # larissatoldoo
-Prazer,sou Larissa Gabriela Toldo De Mello 🫶
+#Prazer,sou Larissa Gabriela Toldo De Mello# 🫶
 
-Adoro ter amizades sou alegre e bem agitada 🫡
+#Adoro ter amizades sou alegre e bem agitada# 🫡
 
-Estudo no colegio cedab 😌
+#Estudo no colegio cedab# 😌
 
-Estou querendo virar medica cirurgiã,e sei que vou conseguir 🤭
+#Estou querendo virar medica cirurgiã,e sei que vou conseguir# 🤭
 
-Tenho 17 anos por enquanto 😳
+#Tenho 17 anos por enquanto# 😳
 
-Por enquanto estou morando com minha mãe, mais logo quero sair,ser independente seguir minha vida 🤝
+#Por enquanto estou morando com minha mãe, mais logo quero sair,ser independente seguir minha vida# 🤝
 
-Tenho planos pra minha vida  ,ja planejo tudo pro meu futuro🙃
+#Tenho planos pra minha vida  ,ja planejo tudo pro meu futuro# 🙃
 
 🫶
