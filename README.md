@@ -9,4 +9,4 @@
 
 ❤️‍🔥🫶🙌
 
-![](https://media.tenor.com/s1oAPkm0SCkAAAAC/power-rangers-yellow-power-ranger.gif)
+![](https://media.tenor.com/s1oAPkm0SCkAAAAC/power-rangers-pink-power-ranger.gif)
