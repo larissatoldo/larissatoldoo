@@ -1,3 +1,4 @@
+
 # larissatoldoo
 🫶
 
@@ -9,4 +10,4 @@
 
 ❤️‍🔥🫶🙌
 
-![](https://media.tenor.com/s1oAPkm0SCkAAAAC/power-rangers-pink-power-ranger.gif)
+![](https://media.tenor.com/M0Sy7NiaaX4AAAAC/black-heart-heart.gif)
