@@ -8,3 +8,5 @@
 𝐄𝐬𝐭𝐞𝐣𝐚 𝐩𝐫𝐨𝐧𝐭𝐨 𝐩𝐫𝐚 𝐬𝐞 𝐦𝐚𝐫𝐚𝐯𝐢𝐥𝐡𝐚𝐫 𝐜𝐨𝐦 𝐦𝐞𝐮 𝐩𝐞𝐫𝐟𝐢𝐥 😘
 
 ❤️‍🔥🫶🙌
+
+![](https://media.tenor.com/s1oAPkm0SCkAAAAC/power-rangers-yellow-power-ranger.gif)
