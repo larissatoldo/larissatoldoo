@@ -10,4 +10,3 @@
 
 ❤️‍🔥🫶🙌
 
-![](https://media.tenor.com/M0Sy7NiaaX4AAAAC/black-heart-heart.gif)
