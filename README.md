@@ -1,6 +1,6 @@
-
+![](https://media.tenor.com/M0Sy7NiaaX4AAAAC/black-heart-heart.gif)
 # larissatoldoo
-🫶
+🫶🤍
 
 𝐏𝐫𝐚𝐳𝐞𝐫,𝐬𝐨𝐮 𝐋𝐚𝐫𝐢𝐬𝐬𝐚 𝐆𝐚𝐛𝐫𝐢𝐞𝐥𝐚 𝐓𝐨𝐥𝐝𝐨 𝐃𝐞 𝐌𝐞𝐥𝐥𝐨 
 
